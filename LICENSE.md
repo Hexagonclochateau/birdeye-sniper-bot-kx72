@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced MEV Bot for birdeye sniper bot | pump-detection & liquidity-pool-analysis, the #1 birdeye sniper bot. Includes pump-detection and
 
 
 
